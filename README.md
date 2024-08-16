@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @itxnotsaqlain
 - 👀 I’m interested in App and Web Development
 - 🌱 I’m currently learning Web Development
-- 📫 Reach to me through Social
+- 📫 Reach to me through Socials
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: None rn
 
